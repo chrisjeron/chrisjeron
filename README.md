@@ -5,6 +5,6 @@
 - 📫 How to reach me:
 - Email: c.jeron@web.de
 - Instagram: @chris.jeron
-- Discord: chrispunkt#2990
+- Discord: chrispunkt
 
 
